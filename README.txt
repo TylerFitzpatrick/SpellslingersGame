@@ -13,3 +13,4 @@ Whip Crack: https://freesound.org/people/CGEffex/sounds/93100/
 Flute Song:  https://freesound.org/people/kerri/sounds/37145/
 haunted_canyon_flute.mp3:  https://freesound.org/people/kerri/sounds/35730/
 Ghost Sigh 3:  https://freesound.org/people/HorrorAudio/sounds/431981/
+Flamethrower Loop:  https://freesound.org/people/Vosvoy/sounds/123632/
